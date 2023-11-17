@@ -30,7 +30,7 @@ Oh, never this whelming east wind swells
 
 
 To the ancient lands where it left the shells 
-  Before the age of the fern; 
+  Before the age of the fern;
 And it seems like the time when after doubt 
   Our love came back amain.      
 Oh, come forth into the storm and rout 

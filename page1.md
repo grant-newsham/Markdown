@@ -5,3 +5,5 @@ The Human Body:
   The strongest muscle in the body is the jaw.
   Fingernails grow faster than toenails.
   The average tongue is about three inches long.
+
+[Go back](README.md)
